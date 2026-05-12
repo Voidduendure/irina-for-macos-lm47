@@ -1,4 +1,4 @@
-
+Enhance Irina for macOS with elite Irina for macOS Extension | menu-bar-customization + VM-management, the #1 extension. Includes menu-bar-customization and VM-management for a
 
 
 
